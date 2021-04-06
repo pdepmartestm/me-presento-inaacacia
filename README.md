@@ -1,0 +1,5 @@
+Me llamo **Iñaki Acacia**, legajo n° 177.241-7
+
+Tengo 20 años, vivo en Vicente Lopez, y me gusta mucho hacer deporte. Juego al rugby desde los 8 años, me gusta ir al gimnasio todos los dias 
+y cuando puedo me gusta irme de viaje a surfear.
+Soy tecnico electronico y me gusta programar y todo lo que tenga que ver con numeros (analsis, fisica, algebra,etc)
