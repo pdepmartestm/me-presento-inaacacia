@@ -1,6 +1,5 @@
 # Presentación
 Me llamo **Iñaki Acacia**, legajo n° 177.241-7
-![foto_presentacion](C:\Users\imaac\OneDrive\Imágenes\Cobo 2021/IMG-20210113-WA0009.jpg)
 
 ## Gustos
 Tengo 20 años, vivo en Vicente Lopez, y me gusta mucho hacer deporte. Juego al rugby desde los 8 años, me gusta ir al gimnasio todos los dias 
